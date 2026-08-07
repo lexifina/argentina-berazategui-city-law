@@ -1,0 +1,19 @@
+Ordenanza Nº6800
+Ordenanza Nº 6800
+Berazategui, 19/03/2026
+VISTO
+El Expediente N° 6973-HCD-2026; Ref. a: Sol. Instauración de Monolito con respecto al Golpe de Estado Cívico-Militar en la Plazoleta de Avenida Néstor Kirchner y Avenida 14; y
+CONSIDERANDO
+Que las elecciones nacionales celebradas el día 11 de Marzo de 1973 – Ley Decreto N° 19805 – procedieron a consagrar victoriosa a la fórmula presidencial representativa del Frente Justicialista de Liberación (FREJULI) compuesta por Héctor José Cámpora y Vicente Solano Lima, mientras que en la geografía provincial asumen la condición electa de Gobernador Oscar Raúl Bidegain y Vicegobernador Victorio Calabro;
+Que es imprescindible destacar que a raíz de la trascendental jornada descripta, el suelo berazateguense comienza luego de varios años, a transitar nuevamente vigorosas horas de autónoma vida democrática donde con un amplio protagonismo los ciudadanos distribuidos en numerosas mesas de votaciones (masculinas y femeninas). Eligen la representación de 20 Concejales, 3 consejeros escolares y al Intendente Municipal;
+Que con un holgado triunfo electoral la obtención mayoritaria de los legisladores en el Distrito de Berazategui correspondió a la expresión del FREJULI (peronismo) encabezada por el dirigente gremial del sindicato del vidrio Nicolás Milazzo al cargo de Intendente Municipal junto a 16 ediles y 3 consejeros escolares;
+Que asimismo la estructura política con la nombradía de Unión Cívica Radical resulto la segunda lista con mayores sufragios recibidos, adjudicándose 2 legisladores locales y además 2 bancas de concejales correspondieron a la coalición denominada Alianza Popular Revolucionaria;
+Que los ciudadanos electos en dicho ejemplar evento democrático asumen sus funciones el viernes 25 de Mayo de 1973, en un acto popular frente a las instalaciones donde funciono el entonces palacio municipal y el propio Concejo Deliberante, situado en la actual Avenida Néstor Carlos Kirchner (ex Avenida Mitre) y Avenida 14;
+Que en la madrugada del martes 24 de marzo de 1976 , a escasos meses del nuevo acto eleccionario por medio de un nefasto golpe de estado cívico-militar se interrumpieron el orden democrático en todos sus niveles tanto Nacional, Provincial y Municipal, donde numerosos ciudadanos fueron lamentablemente detenidos-desaparecidos y asesinados por brindarse fundamentalmente con decisión y valentía al ejercicio de las reivindicativas luchas en pos del camino constructivo hacia un país grande, más justo, libre y soberano;
+Que en uno de los tantos actos anuales en defensa de la Democracia, el entonces Intendente Municipal Dr. Juan José Mussi expresó: "Sin memoria no hay verdad ni justicia, por eso es tan importante hacer estas cosas, porque retrotraen a la memoria y sirven para seguir encendiendo la llama del NUNCA MÁS";
+Que al cumplirse durante el corriente año el 50 aniversario del comienzo de la referida Dictadura Cívico Militar, la memoria histórica constituye un pilar fundamental para la construcción de una sociedad democrática basada en la verdad, la justicia y el respeto por los Derechos Humanos;
+Que con la colocación de un monolito en la Plazoleta ubicada en Avenida Néstor Carlos Kirchner (ex Mitre) y Avenida 14 del distrito de Berazategui, donde funcionó la Municipalidad, y asimismo en su 7° Piso el Honorable Concejo Deliberante, se impulsa el poder visibilizar y mantener viva la memoria colectiva, honrando las instituciones democráticas y a quienes fueron elegidos por el pueblo, el único soberano de la Nación;
+Que por ende, sin lugar a dudas corresponde manifestar iniciativas y en forma permanente que fortalezcan los valores democráticos y el compromiso irrestricto con la defensa de los derechos humanos en la nación toda.
+POR ELLO
+EL HONORABLE CONCEJO DELIBERANTE SANCIONA CON FUERZA DE:
+ORDENANZA
