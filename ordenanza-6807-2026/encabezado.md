@@ -1,0 +1,30 @@
+Ordenanza Nº6807
+Ordenanza Nº 6807
+Berazategui, 09/04/2026
+VISTO
+El Expediente N° 6991-HCD-2026; Ref. a: Sol. Declarar de Interés Municipal y Público del 800° Aniversario del fallecimiento de San Francisco de Asís y del Año Jubilar Franciscano 2026 – 2027; y
+CONSIDERANDO
+Que nació en el seno de una familia de comerciantes en la ciudad de Asís, en la actual Italia, alrededor de 1181, Francisco renunció a la riqueza familiar. Sus primeros biógrafos lo describieron como “Il Poverello”, o “El Pequeño Pobre”;
+Que en 1209 fundó la orden mendicante franciscana, un grupo religioso dedicado a las obras de caridad;
+Que la hagiografía es una forma de biografía religiosa que celebra la vida virtuosa de los santos, a menudo relatando los milagros que se le atribuyen, tanto en vida como después de su muerte. Los devotos suelen visitar sus tumbas en busca de una intervención milagrosa. Algunas de las hagiografías de Francisco fueron escritas poco después de su muerte en 1226;
+Que tras hacer voto de pobreza, Francisco pidió limosna y también trabajó en colonias de leprosos cerca de Asís. Durante este período, fundó la orden franciscana;
+Que los miembros de la orden franciscana desarrollan su labor en más de 100 países, centrándose en temas como la pobreza, la misión y la educación;
+Que en 1210 viajó a Roma y recibió la aprobación papal para la orden del Papa Inocencio III;
+Que como predicador itinerante, Francisco viajaba con frecuencia por toda Italia para difundir el Evangelio;
+Que cabe destacar que francisco se convirtió en la primera persona que se cree que recibió los estigmas, heridas que se cree que reflejan las de la crucifixión de Cristo;
+Que San Francisco de Asís falleció el 3 de octubre de 1226. Fue canonizado por el Papa Gregorio IX, tomándose como fecha de celebración el 4 de octubre. Defendió el cuidado de los pobres y el respeto por la naturaleza. Estos valores se reflejaron siglos después en las acciones del Papa Francisco. El difunto Papa eligió su nombre papal en honor al santo medieval que abrazó a los pobres y a sus enseñanzas sobre la responsabilidad moral de cuidar a todas las criaturas de la Tierra;
+Que de la conmemoración del 800° Aniversario del tránsito de San Francisco de Asís (1226-2026), figura histórica, espiritual y cultural de trascendencia universal. El Año Jubilar Franciscano especial convocado por la Santa Sede mediante Decreto de la Penitenciaría Apostólica, con motivo de dicha conmemoración, que se desarrollará desde el 10 de Enero de 2026 hasta el 10 de Enero de 2027;
+Que las celebraciones, peregrinaciones, actividades religiosas, culturales y comunitarias que se desarrollarán en templos dedicados al santo, entre ellos la Parroquia San Francisco de Asís de la Ciudad de Berazategui;
+Que su legado ha trascendido el ámbito estrictamente religioso, siendo reconocido en todo el mundo como referente de paz, diálogo entre los pueblos, respeto por la naturaleza y promoción de la dignidad humana, valores fundamentales para la convivencia social;
+Que con motivo del octavo centenario de su tránsito, Su Santidad el Papa León XIV ha proclamado un Año Jubilar Franciscano especial, invitando a los fieles a seguir el ejemplo del Santo de Asís, convirtiéndose en modelos de santidad de vida y testigos constantes de paz y estableciendo la concesión de indulgencia plenaria, en las condiciones previstas por la normativa canónica.
+Que la apertura oficial de las celebraciones se realizó en la Basílica de Santa María de los Ángeles, en la Porciúncula, lugar donde concluyó su camino terrenal, en un acto solemne que contó con la participación de autoridades religiosas y representantes de las seis ramas de la familia franciscana, recordando la reconciliación, la fraternidad y la paz como ejes centrales del mensaje del santo;
+Que el Año Jubilar busca promover valores universales como la misericordia, la reconciliación, el perdón, la fraternidad, la solidaridad y el cuidado de la creación, invitando a todos los fieles a participar activamente de peregrinaciones, celebraciones litúrgicas y acciones comunitarias;
+Que la Parroquia San Francisco de Asís ubicada en calle 138 “A” N° 2163 de la Ciudad de Berazategui constituye un espacio de profunda relevancia religiosa, social y cultural desarrollando actividades pastorales, educativas y solidarias que fortalecen el tejido social y el sentido de comunidad; el Padre Martín Pedraglio, resalta la importancia de la paz, la fraternidad y el diálogo como valores fundamentales del legado franciscano, invitando a la comunidad a vivir estos principios en el ámbito social, cultural y educativo;
+Que la Encíclica Laudato Si´, publicada por el Papa Francisco en 2015, destaca la importancia del cuidado de la “casa común”, es decir del planeta y de toda la creación, señalando que la crisis ambiental y la crisis social están estrechamente vinculadas, ya que quienes más sufren los efectos de la contaminación, el cambio climático o la explotación de los recursos naturales suelen ser los sectores más pobres de la sociedad;
+Que dicha encíclica propone una ecología integral que integra el cuidado del ambiente, la justicia social, cambios en los modelos económicos y la responsabilidad política y comunitaria, invitando a gobiernos, instituciones, empresas y comunidades a poner la dignidad humana y el cuidado de la creación en el centro de sus decisiones;
+Que los principios de Laudato Si´ son coherentes con el legado de San Francisco de Asís y el espíritu del Año Jubilar Franciscano, promoviendo la paz, la fraternidad, la solidaridad y el respeto por la naturaleza, valores universales que esta Honorable Institución reconoce como fundamentales para la convivencia social y el desarrollo comunitario;
+Que la Comunidad de Berazategui ha solicitado al Honorable Concejo Deliberante el reconocimiento formal de esta significativa conmemoración, como expresión del sentir popular y de la valoración institucional del legado de San Francisco.
+POR ELLO
+EL HONORABLE CONCEJO DELIBERANTE SANCIONA CON FUERZA DE:
+O R D E N A N Z A N° 6807
+ORDENANZA
