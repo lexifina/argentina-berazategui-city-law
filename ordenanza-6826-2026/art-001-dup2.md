@@ -1,0 +1,1 @@
+ARTICULO 1°: El Honorable Concejo Deliberante de Berazategui Declara de Interés Municipal y Adhiere a la conformación del “Consejo Regional para el Desarrollo y el Empleo”, consensuado con Sindicatos Nucleados en la CGT Regional Berazategui, Quilmes y Florencio Varela e integrado además por representantes de la Unión Industrial y Cámaras de Comercio.

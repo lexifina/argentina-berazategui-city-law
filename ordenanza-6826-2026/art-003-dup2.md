@@ -1,0 +1,1 @@
+ARTICULO 3°: DETERMINASE la participación de 1 (UNO) representante del Honorable Concejo Deliberante y 1 (UNO) representante del Departamento Ejecutivo en el Consejo Regional para el Desarrollo y el Empleo.
