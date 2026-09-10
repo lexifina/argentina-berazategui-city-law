@@ -1,0 +1,20 @@
+Ordenanza Nº6829
+Ordenanza Nº 6829
+Berazategui, 21/05/2026
+VISTO
+El Expediente N° 7050-HCD-2026; Ref. a: Sol. Designar el 7 de Diciembre como Día del Barrio Villa Rial de Hudson; y
+CONSIDERANDO
+Que mediante nota recibida a fs. 1 a 3 por vecinos del Barrio Villa Rial de G. E. Hudson se dirigen a la Presidenta del Honorable Concejo Deliberante de Berazategui Lic. Lucia Magdalena Vega con motivo de solicitar designar el 7 de Diciembre como “Día del Barrio Villa Rial de Hudson”;
+Que resulta notorio señalar que a través de la Ordenanza N° 5764 se creó el programa “El día del Barrio”, desde la cual cada uno de los barrios que subyacen en el Partido, puedan tener la aspiración de instituir anualmente su especifico día de festividad y en este registro de configuración peculiar comprendiendo al Barrio Villa Rial de Guillermo Enrique Hudson;
+Que la mencionada superficie geográfica del actual núcleo vecinal del pujante y floreciente Barrio Villa Rial de Hudson se encuentra situada en las inmediaciones a la Ex-Fábrica “Maltería Hudson”, al trazado de la Autopista Buenos Aires – La Plata y asimismo a escasa distancia de las costas del Rio de la Plata y de la estación ferroviaria de Hudson;
+Que dicho dominio territorial atañía a los mojones del entonces sureño Cuartel VI – perteneciente en aquellos tiempos al Partido de Quilmes –, teniendo el asiento de su primera compra en la Familia Gonzales con fecha 31 de Marzo de 1909 ante el escribano Prudencio La Vista y luego de sucesivas operaciones comerciales de cesiones son adquiridas por los señores Francisco y Adolfo Rial el 10 de Septiembre de 1945;
+Que constituye una accionar improrrogable la declaración del aniversario sobre las fechas iconos de la crónica de cada uno de los barrios que comprenden al Partido de Berazategui, constituyendo un gran acontecimiento social, al homenajearse a los antepasados forjadores del ayer y también al énfasis constructivo del presente en ejecución y al ineludible futuro a desarrollar;
+Que sin margen a dudas representa el acontecimiento trascendental para estos lares descriptos, la relevante jornada del 7 de diciembre de 1947 donde desde las 15.30 hs., se realizó el inicio del procedimiento correspondiente al loteo y venta (base de $8 y $12 de entonces) por cada parcela catastral del novel barrio, correspondiente a una extensión de 10 hectáreas la cual llevó la nombradía del apellido de sus flamantes propietarios;
+Que entre los precursores gestores de las escrituraciones del conglomerado hudsense de Villa Rial, sobresalen las figuras de los siguientes vecinos: Luis Vasko, Girar Evaristo (1950) - Alvarez Joaquín (1952) - Mella Zulema (1953) - Retamal Luis (1954) - Camparone José (1955) - Pintos Francisco Rufino (1955) - Muller Estela María (1956) - Musante Claridad (1956) - Guirb Gallego José (1958) - Luchesi Angel Alberto (1958) - Navas Anto (1956), entre otros;
+Que asimismo el entonces Intendente Municipal Dr. Juan José Mussi a partir de fortalecer el orgullo, la integración y la solidaridad entre los habitantes de cada barrio, expresó en su oportunidad el profundo beneplácito y disposición a la especial iniciativa vecinal sobre la nombradía y celebración anual de la jornada del 7 de Diciembre como el día del vigoroso Barrio “Villa Rial” de G.E. Hudson;
+Que con certeza solamente se defiende, cuida y protege todo aquel postulado que se siente propio y por ende haciendo gala y enalteciendo cada una de las profundas tradiciones barriales, corresponde por medio de la participación ciudadana, acceder, forjar y brindar sus particulares reconocimientos y conmemoraciones;
+Que por todo lo expuesto, en el marco pleno de una comunidad organizada y en honor a su arraigado sentido de pertenencia; el valioso y contemporáneo centro urbano Villa Rial de Hudson merece con creces vislumbrar y visibilizar el legado exclusivo a la instauración de la propia data que los identifique social e históricamente.
+POR ELLO
+EL HONORABLE CONCEJO DELIBERANTE SANCIONA CON FUERZA DE:
+O R D E N A N Z A N° 6829
+ORDENANZA
