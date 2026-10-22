@@ -1,0 +1,19 @@
+Ordenanza Nº6846
+Ordenanza Nº 6846
+Berazategui, 02/07/2026
+VISTO
+El Expediente N° 7069-HCD-2026; Ref. a: Sol. Instituir el 2 de junio como “Día de la Avenida Bemberg”; y
+CONSIDERANDO
+Que mediante nota recibida a fs. 1 por comerciantes y vecinos de Avenida Bemberg, se dirigen a la Presidenta del Honorable Concejo Deliberante, Lic. Lucia Magdalena Vega donde solicitan instituir el 2 de junio como día de la Avenida Otto Bemberg;
+Que corresponde el objetivo de redescubrir, reconocer y valorar las riquezas históricas y el patrimonio urbanístico de cada emblemática pieza geográfica del distrito, por ende, resulta interesante mencionar que la pionera Avenida Otto Bemberg (ex calle 714 y actual Calle 55) – es una de las arterias más emblemáticas de la Localidad de Guillermo Enrique Hudson, comprendiendo el eje de su trazado desde Lisandro de la Torre hasta la calle 138;
+Que su nombradia recuerda a la histórica familia Bemberg, vinculada al desarrollo industrial y cervecero de la Argentina, especialmente a la Cervecería y Maltería Quilmes, que tuvo una fuerte presencia en la zona sur del distrito, más precisamente en la actual Avenida Néstor Kirchner (ex Mitre) y calle 55, de la Localidad de G.E. Hudson;
+Que la Localidad de Guillermo Enrique Hudson creció alrededor de antiguas quintas, estancias y emprendimientos ligados al ferrocarril y la industria y en ese contexto, la familia Bemberg dejó una importante huella territorial y urbana en la región, incluso documentos históricos mencionan antiguas propiedades y tierras conocidas como “Villa Matilde”, vinculadas en el propio radio de Hudson y Plátanos;
+Que el importante enclave, escenario localizador de los barrios Villa Matilde, Sarmiento, Cesar Bustillo y San Marcos, representa sin lugar a dudas la síntesis del centro neurálgico en el sector norte de Hudson, es decir que no solo representa una vía de circulación vehicular, sino también un valido y cálido símbolo de la identidad y crecimiento permanente en dicha zona;
+Que dicha tradicional, valiosa e importante avenida, paisaje icónico en Hudson fue inaugurada el día domingo 2 de Junio del año 1968, constituyendo desde hace décadas con el paso de los años en testigo esencial y claro exponente del fiel reflejo en el transitar social de la propia y excelsa comunidad hudsense;
+Que en su amplio trayecto, epicentro cargado de simbolismo y dinamismo registra en su relieve, modernas realizaciones por medio de una oferta muy variada en infraestructura, abarcando numerosos emprendimientos comerciales, diversas actividades de índoles gastronómicos, de esparcimientos, oficinas de profesionales y asimismo cuenta con la presencia de la Sucursal del Banco Provincia, salud U.P.A N° 10, parques industriales, establecimientos educativos, culturales, religiosos, sociales, líneas de transporte público de pasajeros, etc.;
+Que en los últimos tiempos, la vital Avenida Otto Bemberg fue escenario de una constante evolución, desde las tareas de renovación urbana impulsadas por la Municipalidad de Berazategui, con mejoras en veredas, iluminación, accesibilidad, mobiliario urbano, intervenciones artísticas que reflejan la identidad local, reconociendo el profundo desarrollo de la zona y fortaleciendo el fraternal y armonioso vínculo entre vecinos, comerciantes y el municipio;
+Que el entonces Intendente Municipal Dr. Juan José Mussi a partir de fortalecer el orgullo, la integración, solidaridad y sentido de pertenencia distrital expresó en su oportunidad el profundo beneplácito y disposición a la especial iniciativa sobre la nombradía y celebración anual del 2 de Junio como el día de la vigente y pujante Avenida Otto Bemberg; el cual merece visibilizar y consolidar institucionalmente.
+POR ELLO
+EL HONORABLE CONCEJO DELIBERANTE SANCIONA CON FUERZA DE:
+O R D E N A N Z A N° 6846
+ORDENANZA
