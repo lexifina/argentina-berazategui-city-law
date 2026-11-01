@@ -1,0 +1,8 @@
+# Ordenanza 6816/2026: IMPÓNGASE a los “Encuentros Deportivos Distritales de Educación Secundaria, Técnica y Agraria” a partir del Ciclo Lectivo 2026 y en adelante, el nombre “Dr. Juan José Mussi”.
+
+Ordenanza 6816/2026 · 1 versions, from 2026-09-10 (latest in force: 2026-09-10) · <https://sibom.slyt.gba.gob.ar/bulletins/15624/contents/2437545>
+
+| Provision | File | Changes | Last changed |
+| --- | --- | ---: | --- |
+| Artículo 1 | [art-001.md](art-001.md) | 0 |  |
+| Encabezado | [encabezado.md](encabezado.md) | 0 |  |

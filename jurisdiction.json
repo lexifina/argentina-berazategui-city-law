@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-berazategui",
+  "code": "AR-B-BERAZATEGUI",
+  "name": "Berazategui",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-berazategui-city-law",
+  "build": "built: municipal ordinances (52 ordinances, 52 versions) from https://sibom.slyt.gba.gob.ar/cities/13",
+  "language": "es",
+  "sources": 1
+}
