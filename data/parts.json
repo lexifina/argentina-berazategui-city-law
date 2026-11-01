@@ -1,0 +1,67 @@
+{
+ "parts": {
+  "30-ordenanzas-01.json": {
+   "acts": [
+    "ordenanza-6796-2026",
+    "ordenanza-6798-2026",
+    "ordenanza-6800-2026",
+    "ordenanza-6804-2026",
+    "ordenanza-6805-2026",
+    "ordenanza-6806-2026",
+    "ordenanza-6807-2026",
+    "ordenanza-6808-2026",
+    "ordenanza-6809-2026",
+    "ordenanza-6810-2026",
+    "ordenanza-6811-2026",
+    "ordenanza-6812-2026",
+    "ordenanza-6814-2026",
+    "ordenanza-6815-2026",
+    "ordenanza-6816-2026",
+    "ordenanza-6817-2026",
+    "ordenanza-6818-2026",
+    "ordenanza-6819-2026",
+    "ordenanza-6820-2026",
+    "ordenanza-6821-2026",
+    "ordenanza-6822-2026",
+    "ordenanza-6823-2026",
+    "ordenanza-6824-2026",
+    "ordenanza-6825-2026",
+    "ordenanza-6826-2026",
+    "ordenanza-6827-2026",
+    "ordenanza-6828-2026",
+    "ordenanza-6829-2026",
+    "ordenanza-6830-2026",
+    "ordenanza-6831-2026",
+    "ordenanza-6832-2026",
+    "ordenanza-6833-2026",
+    "ordenanza-6834-2026",
+    "ordenanza-6835-2026",
+    "ordenanza-6836-2026",
+    "ordenanza-6837-2026",
+    "ordenanza-6838-2026",
+    "ordenanza-6839-2026",
+    "ordenanza-6840-2026",
+    "ordenanza-6842-2026",
+    "ordenanza-6843-2026",
+    "ordenanza-6845-2026",
+    "ordenanza-6846-2026",
+    "ordenanza-6847-2026",
+    "ordenanza-6848-2026",
+    "ordenanza-6849-2026",
+    "ordenanza-6850-2026",
+    "ordenanza-6851-2026",
+    "ordenanza-6852-2026",
+    "ordenanza-6853-2026"
+   ],
+   "sha256": "7cc6a18d7ceb71c8df185526c5258ac542378e8cc4820dd98d5d7868c0c83d88"
+  },
+  "31-ordenanzas-02.json": {
+   "acts": [
+    "ordenanza-6854-2026",
+    "ordenanza-6855-2026"
+   ],
+   "sha256": "d15a13c3abc632984a5f9f9e4d43ac60ed7f22f9ab33932f075c0802aba1e39c"
+  }
+ },
+ "schema": 1
+}
